@@ -22,4 +22,4 @@ This privacy policy may be updated in the future. If so, changes will be posted 
 
 ## Contact
 If you have any questions or concerns, please contact:  
-jph@jphiliphorne.com
+ apps@jphiliphorne.com
